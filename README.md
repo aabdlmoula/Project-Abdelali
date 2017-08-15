@@ -1,1 +1,1 @@
-Soyer le bienvenu dans mon modeste Projet :) 
+Soyez Le bievenu dans mon Projet
